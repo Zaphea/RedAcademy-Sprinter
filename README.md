@@ -1,1 +1,0 @@
-# RedAcademy-Sprinter
